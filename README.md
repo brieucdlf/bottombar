@@ -1,2 +1,2 @@
 # bottombar
-![img](https://imgur.com/a/xRHGCW3)
+![img](https://i.imgur.com/0Nwe4bv.png)
